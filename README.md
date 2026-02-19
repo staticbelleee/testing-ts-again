@@ -3,7 +3,7 @@
 ⪩⪨ more info in prn.cc/prn.page!! 
 hihi names ari/vix! can call me lute or charlie!! 
 
-⧼ 13 yrs old , 10-/20+ yrs dniuc/iwc
+⧼ 13 yrs old , 10-/20+ yrs dniuc/iwcuf
 
 『 she/belle!
 
